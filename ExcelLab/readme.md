@@ -1,1 +1,1 @@
-Laboratoare la Ecel
+Laboratoare la Excel
